@@ -1,1 +1,0 @@
-# snaypssnp.github.io
